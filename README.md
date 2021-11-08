@@ -1,4 +1,7 @@
 # Bớt Nói Cho Sang
+
+![IMG_20211108_210354](https://user-images.githubusercontent.com/75318518/140755633-ae33afc1-5be8-462d-ada1-2648441e089e.jpg)
+
 ![IMG_20211108_210308](https://user-images.githubusercontent.com/75318518/140755516-7ac2e7f1-15b9-4d0f-80a1-012e57805eb5.jpg)
 
 ![IMG_20211108_210204](https://user-images.githubusercontent.com/75318518/140755367-9a91cea5-5da7-40cc-b15e-eb535218be28.jpg)
